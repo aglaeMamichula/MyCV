@@ -1,1 +1,1 @@
-https://aglaemamichula.github.io
+https://aglaemamichula.github.io/MyCV/
